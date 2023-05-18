@@ -1,1 +1,0 @@
-# bojii-oduvan
